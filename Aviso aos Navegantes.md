@@ -1,4 +1,3 @@
-[Encaminhado de 🇧🇷 Adilson 🇵🇹]
 🔶 Aviso aos Navegantes! 🔶
 
 A moderação não foi feita para tirar dúvidas no PV! Se tiver alguma dúvida básica -- sobre documentação, dicas, visto, etc -- pergunte no grupo. 
